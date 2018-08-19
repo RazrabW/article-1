@@ -1,3 +1,3 @@
 # Contacts an links
 
-[Dark](https://vk.com/daarkk)
+[Dark in VK](https://vk.com/daarkk)
